@@ -1,1 +1,3 @@
-# ** jworse şaka lan şaka gül diye 😂😂😂😂 **
+# 💀virüs.EXE💀
+> **"jworse şaka lan şaka gül diye😂"**
+---
